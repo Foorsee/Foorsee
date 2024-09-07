@@ -1,0 +1,5 @@
+- Hello! I am @Foorsee(Фурси).
+- I am from Russia, Donetsk (Россия, Донецк).
+- Learning : Python, HTML, CSS.
+- Fell free to dm me -> Discord : foorsee.
+- I can speak : Русский, English, Српски and litlle Polski.
